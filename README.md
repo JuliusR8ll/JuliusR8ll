@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **ry4442015@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1vTeLXkSWzoKTlxCa1g15bIJIJIOwOLMB/view?usp=drive_link](https://drive.google.com/file/d/1vTeLXkSWzoKTlxCa1g15bIJIJIOwOLMB/view?usp=drive_link)
+- 📄 Know about my experiences https://www.linkedin.com/in/rahul-yadav-50276723b/
 
 - ⚡ Fun fact **I love solving problems**
 
